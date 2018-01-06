@@ -11,4 +11,4 @@ Have any queries or want to contact me? Shoot me an email right away!!
 
 ### Contact me
 
-[me@akkijain.com](mailto:me@akkijain.com)
+[jainnakki@gmail.com](mailto:jainnakki@gmail.com)
